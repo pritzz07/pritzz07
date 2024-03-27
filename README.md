@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a website i am desiging 
 - 📫 How to reach me priyanshsax0709@gmail.com or 9389831248
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: That i am great learner 
+- ⚡ Fun fact: That i am a fast learner and i am very focused on what i have to do in life .
 
 <!---
 pritzz07/pritzz07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
